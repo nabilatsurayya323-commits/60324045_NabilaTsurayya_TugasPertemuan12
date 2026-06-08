@@ -1,0 +1,1 @@
+# 60324045_NabilaTsurayya_TugasPertemuan12
